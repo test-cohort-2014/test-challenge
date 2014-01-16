@@ -1,5 +1,4 @@
 
 ###My Quirk
 
-After I graduated college, I lived in a Tibetan Buddhist retreat center for a year.  It was there that I learned how to do some simple throat singing.  I love seeing people's faces if they've never encountered it before.  They look at me like I'm an alien.  
-
+It's not really a quirk but between 1842 and 1843, I translated an article by Italian military engineer Luigi Menabrea on the engine, which I supplemented with an elaborate set of notes of my own, simply called Notes. These notes contain what many consider to be the first computer program—that is, an algorithm designed to be carried out by a machine. My notes are apparently important in the early history of computers!
