@@ -1,0 +1,1 @@
+###I guess if I had to decide on a quirk, it would be my obsession with lame TV sitcoms. I love the silly family-style comedy of shows. Not because the jokes are funny, but because I think the jokes are stupid.
