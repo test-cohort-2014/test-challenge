@@ -1,2 +1,2 @@
-I prefer to drink coffee when it is lukewarm.
-At Starbucks, I'll order my drink at the "kid's temperature."
+I've been keeping a list of every book I've read since 1998. I record the time and date I finish each book.
+I can't finish a book if I'm not near a digital clock because I need to be able to record the time.
