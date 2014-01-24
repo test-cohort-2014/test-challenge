@@ -19,7 +19,7 @@ Challenges will usually have multiple releases or incremental versions of the ch
 
 In this release, you are tasked with creating a markdown file that contains a couple sentences explaining something quirky about you.  For full intstructions on how to update and submit your file, please see the [original instructions] in Socrates.
 
-
+SUPER GOOD!
 
 
 
