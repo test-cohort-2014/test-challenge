@@ -1,2 +1,1 @@
-I prefer to drink coffee when it is lukewarm.
-At Starbucks, I'll order my drink at the "kid's temperature."
+I'm spanish but I dislike bullfighting, flamenco and don't know how to cook paella.
