@@ -1,1 +1,7 @@
- I very very rarely drink coffee.  My body get's such a kick from coffeine. If I have a coffee or even a coke after 3 pm, I will have a really hard time falling asleep that night. I like it's taste, but I just keep that for emergency situations.
+I recently moved my wife and son to Hollister. Our car looked like this:
+
+![imgur](http://i.imgur.com/eQFiy2Q.jpg)
+
+I had one guy honk at me. I first thought something was about to fly off
+the top of the car. Nope. He was giving me a thumbs up. I like to think
+of my family as the Hollister Hillbilies minus the rocking chair. 
