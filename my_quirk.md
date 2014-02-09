@@ -1,1 +1,6 @@
- I very very rarely drink coffee.  My body get's such a kick from coffeine. If I have a coffee or even a coke after 3 pm, I will have a really hard time falling asleep that night. I like it's taste, but I just keep that for emergency situations.
+I'm left-handed. This is seldom a problem, until:
+
+- I'm required to eat at a crowded dinner table alongside right-handed diners
+- I use a writing pen with very liquid ink, such as whiteboard markers. The edge of my hand ends up smearing the ink.
+- Somebody sits at my left side to pair-program with me. This restricts the motion in my dominant hand and feels oppressive.
+
