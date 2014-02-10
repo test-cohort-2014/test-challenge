@@ -1,1 +1,3 @@
- I very very rarely drink coffee.  My body get's such a kick from coffeine. If I have a coffee or even a coke after 3 pm, I will have a really hard time falling asleep that night. I like it's taste, but I just keep that for emergency situations.
+###MY QUIRK
+I am left-handed. 
+I am one of the last people in the world to get a smart phone (last December!).
