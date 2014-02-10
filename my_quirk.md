@@ -1,1 +1,1 @@
- I very very rarely drink coffee.  My body get's such a kick from coffeine. If I have a coffee or even a coke after 3 pm, I will have a really hard time falling asleep that night. I like it's taste, but I just keep that for emergency situations.
+I usually only wear shorts or pajama pants when I'm at home. Whenever I get home, I will almost always immediately change into pajama pants or sometimes shorts. When I'm at home, you will almost never see me in jeans, khakis, slacks, or other types of pants. 
