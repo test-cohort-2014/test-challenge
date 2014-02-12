@@ -1,1 +1,1 @@
- I very very rarely drink coffee.  My body get's such a kick from coffeine. If I have a coffee or even a coke after 3 pm, I will have a really hard time falling asleep that night. I like it's taste, but I just keep that for emergency situations.
+I am a creature of habit. I drink about 5-6 L of water a day. I write everything in a calendar hanging from my wall. I must listen to a podcast a day. I love to hoard ebooks. I am obsessed with effective sleeping techniques. 
