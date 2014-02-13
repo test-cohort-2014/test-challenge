@@ -1,1 +1,1 @@
-My name is Namrata from golden bears
+Hello! My name is Lucas Mathis from the Golden Bears cohort. My quick is disliking avocado.
