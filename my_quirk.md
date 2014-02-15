@@ -1,4 +1,4 @@
-Calder Wishne's Quirk:
+Calder Wishne's Quirk
 ----------------------
 
 I'm teaching myself Norwegian. It's suprisingly similar to English and quite easy to pick up! For example, there is minimal conjugation within tenses:
