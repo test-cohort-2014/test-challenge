@@ -1,3 +1,2 @@
-Christine Dolendo.
-
-My quirk -- When someone says a line from a song (unintentionally) during a conversation, I sometimes actually sing that line out loud almost like a reflex. Some people find it funny, others find it annoying. 
+### My Quirk
+My name is Jackson Behan and sometimes in conversation, something being said will prompt me to quote a movie, tv show or stand up bit. A lot of times I doubt the other person will get the reference because a lot of the time they are very obscure but I'll do it anyway and just seem weird, but when someone gets the reference it makes me very happy. 
