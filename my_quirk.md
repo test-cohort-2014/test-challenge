@@ -1,3 +1,2 @@
-Christine Dolendo.
-
-My quirk -- When someone says a line from a song (unintentionally) during a conversation, I sometimes actually sing that line out loud almost like a reflex. Some people find it funny, others find it annoying. 
+I'm Drew Parker from Golden Bears.
+My quirk is that I get the hiccups a lot.  This was more of a problem when I was a kid, because I wasn't as good at getting rid of them.  Nowadays, I usually just hiccup once and then I'm done.
