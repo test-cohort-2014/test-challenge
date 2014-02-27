@@ -1,3 +1,3 @@
-Jay Bobo.
+#Nathan Sass
 
-My quirk -- I dance a lot at home or in public. It's a part of my everyday thing.
+##My quirk -- My mom says its quirky how few quirks I have. Moms are always right.
