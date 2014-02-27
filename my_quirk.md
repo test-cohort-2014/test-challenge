@@ -1,3 +1,4 @@
-#Nathan Sass
+#Kelley Puckett
 
-##My quirk -- My mom says its quirky how few quirks I have. Moms are always right.
+####I don't read fiction, ever, at all, of any kind. Ever. 
+####I've been a fiction writer for twenty years. 
