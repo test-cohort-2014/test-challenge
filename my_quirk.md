@@ -1,3 +1,5 @@
-#Nathan Sass
 
-##My quirk -- My mom says its quirky how few quirks I have. Moms are always right.
+
+*Jay Bobo*
+
+Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
