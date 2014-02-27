@@ -1,3 +1,3 @@
-Christine Dolendo.
+#Nathan Sass
 
-My quirk -- When someone says a line from a song (unintentionally) during a conversation, I sometimes actually sing that line out loud almost like a reflex. Some people find it funny, others find it annoying. 
+##My quirk -- My mom says its quirky how few quirks I have. Moms are always right.
