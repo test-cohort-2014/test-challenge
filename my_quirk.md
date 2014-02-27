@@ -1,3 +1,1 @@
-#Nathan Sass
-
-##My quirk -- My mom says its quirky how few quirks I have. Moms are always right.
+##My quirk -- i can't drink cold tea
