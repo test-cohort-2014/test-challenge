@@ -1,5 +1,3 @@
+**Christoph's quirk
 
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+I really like to learn in depth about random facts.
