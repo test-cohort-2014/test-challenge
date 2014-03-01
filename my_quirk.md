@@ -1,5 +1,7 @@
+# Justin the Dragonfly's Quirk
 
 
-*Jay Bobo*
+### My knee jerk reaction when I get nervous is to laugh.  People take this the wrong way... 
 
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+
+### Fortunately, most people understand once I apologize and explain.  I make it a point to avoid funerals. 
