@@ -1,5 +1,3 @@
+## My name is Charles Arciniega
 
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+I read outloud and don't realize I'm doing it until someone tells me!
