@@ -1,5 +1,1 @@
-
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+Hey its Greg Gerla, i'm quirky!
