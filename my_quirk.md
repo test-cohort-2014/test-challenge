@@ -1,5 +1,5 @@
+####Laura Cossette####
 
+I have no quirks, no quirks at all.
 
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+=)
