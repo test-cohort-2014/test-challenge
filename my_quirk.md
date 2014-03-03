@@ -1,5 +1,5 @@
+###Ashwin Kumar
 
+##My quirk: 
+I can't eat meat that looks like the animal (i.e. lobster, oysters, shrimp - most seafood!) out of fear and queasiness!
 
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
