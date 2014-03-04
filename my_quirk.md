@@ -1,5 +1,1 @@
-
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+Tyler Stauss - My quirk is that I'm a very fast walker. My third grade teacher said she would fail us if we ever fell behind her while walking, so now everywhere I go, I like to walk in the front of the group.
