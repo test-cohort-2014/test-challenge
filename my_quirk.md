@@ -1,5 +1,6 @@
 
 
-*Jay Bobo*
+##Jonathan Wrobel
 
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+My quirk is that I never tighten the screws on caps.  Well _almost_ never.  My wife does **not** appreciate this quirk.
+
