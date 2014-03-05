@@ -1,5 +1,2 @@
-
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+#Ron Gierlach
+##Hey my name's Ron, my quirk is that I am a twin.
