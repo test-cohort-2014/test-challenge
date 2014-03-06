@@ -1,5 +1,5 @@
 
 
-*Jay Bobo*
+**Ravi S. Rāmphal**
 
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+我沒有任何怪癖。中文加油！
