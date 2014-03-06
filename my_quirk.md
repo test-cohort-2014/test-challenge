@@ -1,5 +1,3 @@
+####Javad Afshar
 
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+I talk fast, and try to get to the point quickly because I think I'm really long winded.
