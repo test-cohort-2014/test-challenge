@@ -1,5 +1,6 @@
+##Chris Cooper
 
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+###My Quirk
+```
+People tell me I have many quirks.  Most recently, I was told that making a giant batch of Steel Cut Oatmeal every week is a quirk.
+```
