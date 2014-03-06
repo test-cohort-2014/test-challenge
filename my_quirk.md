@@ -1,5 +1,11 @@
 
+##David Stavis, Gentleman Hacker
+###A Quirk of Mine
+```
+I speak Japanese fluently.
 
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+Yoroshiku onegaishimasu!
+よろしくお願いします！
+lol
+笑
+```
