@@ -1,5 +1,5 @@
 
 
-*Jay Bobo*
+*Bo Keopaseut*
 
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+My quirk - I live the Hacker House aka House of Code at Presidio Heights. 
