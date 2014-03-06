@@ -9,3 +9,7 @@ Yoroshiku onegaishimasu!
 lol
 笑
 ```
+###Have another! It's on sale. Two fo wan special.
+```
+I'm passionate about post-gender sexuality and a new kind of masculinity.
+```
