@@ -1,8 +1,6 @@
 ###Alistair Hill
 
-'''
-Adding my "quirk"
-'''
+blah blah blah
 
 *Jay Bobo*
 
