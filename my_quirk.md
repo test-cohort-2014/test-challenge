@@ -1,5 +1,9 @@
 
 
-*Jay Bobo*
+*Alexandra Swart*
 
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+This is my quirk.
+
+######Why is it called quirk?
+
+P.S. I don't like to follow instructions. :P
