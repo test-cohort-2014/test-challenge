@@ -1,7 +1,3 @@
-###Alistair Hill
+Nina Hwang
 
-blah blah blah
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+My quirk: I can't usually eat more than two bites of food but I get hungry really fast again...
