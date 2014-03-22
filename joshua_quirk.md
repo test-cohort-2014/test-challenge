@@ -1,1 +1,0 @@
-## I have a little quirk. I talk to myslef while working out the solutiopn to a problem.
