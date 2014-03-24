@@ -1,7 +1,6 @@
-###Alistair Hill
+##### My quirk
 
-blah blah blah
+I recorded a vocal hook with a local bay rapper. No, you'll never find out who or which song it is.
 
-*Jay Bobo*
 
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+Line number 2 is the line that brick thornton is commenting on.
