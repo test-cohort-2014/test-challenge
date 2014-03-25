@@ -1,7 +1,7 @@
-###Alistair Hill
+###Justin Phelps
 
-blah blah blah
+This is my quirk 
+'''
+This is syntax Hilighting
+'''
 
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
