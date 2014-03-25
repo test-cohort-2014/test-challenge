@@ -1,7 +1,5 @@
-###Alistair Hill
+###Jared Rader
 
-blah blah blah
+####My Quirk
 
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+I can sing a Chinese rap song. It's a hit at Chinese KTVs.
