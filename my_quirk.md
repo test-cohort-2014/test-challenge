@@ -1,7 +1,3 @@
-###Alistair Hill
+Kenneth Uy
 
-blah blah blah
-
-*Jay Bobo*
-
-Mi quirk - I have no quirks. P.S. I don't like to follow instructions. :P
+I think I just deleted the content of the previous my_quick markdown file. Lol. Anyway, check out my website if you want to at missingno15.com
