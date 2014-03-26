@@ -1,3 +1,4 @@
-Kenneth Uy
+#Dave Schaaf
 
-I think I just deleted the content of the previous my_quick markdown file. Lol. Anyway, check out my website if you want to at missingno15.com
+##Quirk: Running
+To me, a relaxing day means heading out to the woods and spending 3-5 hours running on the trails. It really helps me clear my mind by focusing on a tough challenge.
