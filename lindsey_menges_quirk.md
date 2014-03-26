@@ -1,2 +1,0 @@
-###Lindsey Menges' Quirk:
-I don't know if I'd call it a quirk, but one of my favorite past times is creating nail art! Not only do I enjoy making classic designs (like French tips and Chevron stripes), but I also love creating nail art for various fandoms. So far I've done Doctor Who, Game of Thrones, Psychonauts and many more, and I've got a lot more in the works!
