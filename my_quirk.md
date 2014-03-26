@@ -1,3 +1,6 @@
-Kenneth Uy
+####Phil Wittig
 
-I think I just deleted the content of the previous my_quick markdown file. Lol. Anyway, check out my website if you want to at missingno15.com
+######My Quirk
+I constantly reference Clay Davis from the wire, and try to work in "shiiiiiiiit" references into normal, casual conversations.  If you are unfamilar, you should check out the following video:
+
+[Best of Clay Davis](http://www.youtube.com/watch?v=Fr0A7TofowE)
