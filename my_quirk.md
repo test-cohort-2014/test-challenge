@@ -1,3 +1,3 @@
-Kenneth Uy
+Erik Olsen
 
-I think I just deleted the content of the previous my_quick markdown file. Lol. Anyway, check out my website if you want to at missingno15.com
+I'm addicted to games like chess and backgammon.  Every couple years I binge and play for hours and even read strategy guides on the topic.  Then I won't play a game for years. But I always return!
