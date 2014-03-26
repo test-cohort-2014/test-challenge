@@ -1,5 +1,5 @@
 Geoff Pavey:
 This is my new quirk.  
-Feeling quirky
+Feeling quirky. I git it.  I really git it!
 
 
