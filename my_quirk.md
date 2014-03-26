@@ -1,3 +1,6 @@
-Kenneth Uy
+# Milan Grubnic
 
-I think I just deleted the content of the previous my_quick markdown file. Lol. Anyway, check out my website if you want to at missingno15.com
+## My Quirk:
+
+#### I recite memorable lines from movies, shows, songs, etc. to myself for my own entertaiment  when it fits in a conversation. 
+
