@@ -1,3 +1,2 @@
-####Matt Didier
-
-#####My quirk is a little quirky.
+#####Matthew Berns quirk
+I have virtually the entire script of Spaceballs committed to memory.
