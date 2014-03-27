@@ -1,3 +1,2 @@
-####Matt Didier
-
-#####My quirk is a little quirky.
+Jason Chodera
+I'm mildly obseesed with binge watching really involved TV shows.
