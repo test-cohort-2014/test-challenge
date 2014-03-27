@@ -1,3 +1,3 @@
-####Matt Didier
+####Adam Godel
 
-#####My quirk is a little quirky.
+#####My quirk is that I love chess. Not just a little bit. I LOVE chess...
