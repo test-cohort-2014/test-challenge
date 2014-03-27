@@ -1,3 +1,4 @@
-####Matt Didier
+###Johnathan Weisner
 
-#####My quirk is a little quirky.
+
+#####My quirk involves narrating imagined scenarios and I do it regularly without warning.
