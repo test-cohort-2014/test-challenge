@@ -1,0 +1,1 @@
+Ben Myhre. One quirk I have is that when I play blackjack, I can't play with the same chip I just won with. Also, I have favorite blanket that my wife says I carry around the house like Linus. I dunno.... I just like the blanket. It doesn't help that it is pink.
