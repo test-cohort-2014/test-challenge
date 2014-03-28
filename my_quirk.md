@@ -1,1 +1,5 @@
-I _REALLY_ hate katsup(catchup? ketchup? I don't even know how to spell it). I will hate you forever and ever if you try to get me to eat it.
+##Shaun McGeever
+
+#### My Quirk:
+
+I have a bad habit of cracking my neck. All the time. 
