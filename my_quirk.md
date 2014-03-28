@@ -1,1 +1,3 @@
-I _REALLY_ hate katsup(catchup? ketchup? I don't even know how to spell it). I will hate you forever and ever if you try to get me to eat it.
+#### Keaty
+
+I am very good at drawing fiddler crabs. Finding out we were the Fiddler Crab cohort was an exciting day for me.
