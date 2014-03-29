@@ -1,1 +1,2 @@
-I _REALLY_ hate katsup(catchup? ketchup? I don't even know how to spell it). I will hate you forever and ever if you try to get me to eat it.
+McIvor (Ki) Steiner
+Two things I love: yellow (the color) and dill pickles (the food)
