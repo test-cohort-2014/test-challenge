@@ -1,1 +1,2 @@
-I _REALLY_ hate katsup(catchup? ketchup? I don't even know how to spell it). I will hate you forever and ever if you try to get me to eat it.
+Brittany Miller 
+I'm really good at picking out harmonies, because most most pop songs are in too low of a key for me to sing along with the melody. (Odd exception: Bruno Mars!)
