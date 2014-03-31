@@ -1,7 +1,6 @@
 ## My Quirk
 
-### Michael Hamel
+### Paige Crum
 
-I turn on my lights in my sleep
-
-I *never* have a memory of doing so when I wake up.
+I put my hands over my face when I get excited. Unintentional and it seems to rub
+off on the people who spend a lot of time around me.
