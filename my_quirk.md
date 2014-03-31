@@ -1,7 +1,3 @@
-## My Quirk
+Maggy Feldman
 
-### Michael Hamel
-
-I turn on my lights in my sleep
-
-I *never* have a memory of doing so when I wake up.
+I absolutely abhor melted cheese - its cheese-free pizza for me!
