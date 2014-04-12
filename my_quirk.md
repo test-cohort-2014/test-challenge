@@ -1,4 +1,5 @@
 # *Hello*
 
-My name is Robb, I probably like tacos more than anyone else. Tacos Tacos Tacos
+My name is Pei, and I spin fire. This involves dousing kevlar on either end
+of a staff or poi with fuel, lighting it, and spinning.
 
