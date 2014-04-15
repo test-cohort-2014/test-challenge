@@ -1,3 +1,5 @@
-###Vic Schaeperkoetter
-
-I have a habit of thinking out loud and talking to myself and not realizing it. It has caused some embarressing stories in the past...
+Alex Pan (2014 NYC Spring Peepers)
+=========
+###My quirk: 
+</br>
+I can twirl a pencil in each hand for hours on end. I discovered this talent in my 11th grade AP Chemistry class.
