@@ -1,5 +1,4 @@
 Alex Pan (2014 NYC Spring Peepers)
-=========
 <hr>
 ###My quirk: 
 </br>
