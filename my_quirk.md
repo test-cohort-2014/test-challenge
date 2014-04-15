@@ -1,3 +1,3 @@
-###Vic Schaeperkoetter
+###Sasha Grodzins
 
-I have a habit of thinking out loud and talking to myself and not realizing it. It has caused some embarressing stories in the past...
+I'm a compulsive whisler and I constantly have christmas carols stuck in my head. 
