@@ -1,3 +1,1 @@
-###Vic Schaeperkoetter
-
-I have a habit of thinking out loud and talking to myself and not realizing it. It has caused some embarressing stories in the past...
+I love Kung Fu an dI wish Bruce Lee was my best friend
