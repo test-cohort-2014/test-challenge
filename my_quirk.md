@@ -1,4 +1,4 @@
-### Elizabeth Rhodes
+##The strange, odd, puzzling, baffling, peculiar, quirkiness of Sean Dickey
 
-At the end of the day, even if i'm too tired to watch a 2 hour long movie
-I seem to have no problem watching an entire season of a really good tv show.
+### I'm Sean. I put grease in my 'do and cuff my jeans like it's 1952. That
+totally rhymed. Crazy-sauce. 
