@@ -1,3 +1,3 @@
-###Vic Schaeperkoetter
+###Zach Karst
 
-I have a habit of thinking out loud and talking to myself and not realizing it. It has caused some embarressing stories in the past...
+I regularly miss subway stops and have to backtrack because I'm engrossed in my reading.
