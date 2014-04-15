@@ -1,4 +1,3 @@
-### Elizabeth Rhodes
+###Vic Schaeperkoetter
 
-At the end of the day, even if i'm too tired to watch a 2 hour long movie
-I seem to have no problem watching an entire season of a really good tv show.
+I have a habit of thinking out loud and talking to myself and not realizing it. It has caused some embarressing stories in the past...
