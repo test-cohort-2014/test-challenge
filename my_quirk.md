@@ -1,3 +1,6 @@
-###Daniel Deutsch
+### Dusty Wilson
 
-When a tour bus goes by, I like waving at the tourists.
+The only food I absolutely hate is green beans. 
+I can force down lots of other foods I'm not *particularily* fond of,
+
+but I cannot eat a green bean. 
