@@ -1,3 +1,3 @@
-###Daniel Deutsch
+##Ed Chun
 
-When a tour bus goes by, I like waving at the tourists.
+I'm eating pad thai right now.
