@@ -1,3 +1,3 @@
-###Daniel Deutsch
+## Jason Smith
 
-When a tour bus goes by, I like waving at the tourists.
+My quirk is, oddly enough, whenever I hear a baby or infant cry, I giggle.  I think it's because I know they usually cry when they don't know how to communicate something and I think of some adults that do the same thing.  My girlfriend, oddly enough, finds it endearing and is a staple memory of all of our Disneyland trips, lol.
