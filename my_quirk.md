@@ -1,3 +1,3 @@
-## Jason Smith
+###Monica Cho
 
-My quirk is, oddly enough, whenever I hear a baby or infant cry, I giggle.  I think it's because I know they usually cry when they don't know how to communicate something and I think of some adults that do the same thing.  My girlfriend, oddly enough, finds it endearing and is a staple memory of all of our Disneyland trips, lol.
+I have a habit of unintentionally stomping my feet as I walk. My friend pointed it out to me a few months ago. My mom wanted to enroll me in a ballet class as a kid so I could be more graceful. 
