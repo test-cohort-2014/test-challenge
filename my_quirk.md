@@ -1,3 +1,3 @@
-###Daniel Deutsch
+###Michael Ohm
 
-When a tour bus goes by, I like waving at the tourists.
+I juice fasted for 3 weeks and almost went bald.
