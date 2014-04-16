@@ -1,3 +1,3 @@
-###Daniel Deutsch
+###Ziad Abdo
 
-When a tour bus goes by, I like waving at the tourists.
+I like to read poetry but I forget to do it. 
