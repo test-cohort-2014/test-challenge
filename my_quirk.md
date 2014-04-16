@@ -1,3 +1,3 @@
-###Daniel Deutsch
+###Joe Cohen
 
-When a tour bus goes by, I like waving at the tourists.
++If music is on, I will subconsciously sync my movements with the beat.
