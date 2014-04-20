@@ -1,3 +1,4 @@
-## Jason Smith
 
-My quirk is, oddly enough, whenever I hear a baby or infant cry, I giggle.  I think it's because I know they usually cry when they don't know how to communicate something and I think of some adults that do the same thing.  My girlfriend, oddly enough, finds it endearing and is a staple memory of all of our Disneyland trips, lol.
+<strong>Ariel Diamond</strong><br>
+
+I can debone a pig head in under two minutes. I eat everything except raw celery and truffle oil. I am growing portobello mushrooms in my house. I maintain water kefir grains and a sourdough starter. I have a bunny named Pat the Bunny and he is cooler than me. I love Stevie Nicks and Amy Winehouse. 
