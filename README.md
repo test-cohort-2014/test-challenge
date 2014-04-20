@@ -1,4 +1,3 @@
-
 #Git and Github Submission Challenge
 
 ## Learning Goals
@@ -17,7 +16,7 @@ Every challenge will have a summary, an overview of what the challenge entails. 
 
 Challenges will usually have multiple releases or incremental versions of the challenge.  Sometimes, a release can be an MVP (Minimum Viable Product) or an initial collection of features.
 
-In this release, you are tasked with creating a markdown file that contains a couple sentences explaining something quirky about you.  For full intstructions on how to update and submit your file, please see the [original instructions] in Socrates.
+In this release, you are tasked with creating a markdown file that contains a couple sentences explaining something quirky about you.  For full instructions on how to update and submit your file, please see the [original instructions](https://socrates.devbootcamp.com/challenges/497) in Socrates.
 
 SUPER GOOD!
 
