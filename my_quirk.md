@@ -1,3 +1,3 @@
-## Jason Smith
+## Gustavo Puglia
 
-My quirk is, oddly enough, whenever I hear a baby or infant cry, I giggle.  I think it's because I know they usually cry when they don't know how to communicate something and I think of some adults that do the same thing.  My girlfriend, oddly enough, finds it endearing and is a staple memory of all of our Disneyland trips, lol.
+My quirk is that I check my shoes for scorpions before I put them on. My house is near the woods, so its not uncommon to find snakes or scorpions after it rains of there's been a fire. I've foung three scorpions already, and almost sat or stepped on them. So i just shake my shoes before putting them on so as not to get an unpleasant surprise.
